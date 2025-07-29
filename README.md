@@ -1,0 +1,1 @@
+# sec_academic_manager
